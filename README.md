@@ -1,7 +1,7 @@
 # How to ABE
-Manager readme von Andreas Behringer, Kürzel ABE
+Manager Readme von Andreas Behringer, Kürzel ABE
 
-## TLDR;
+## TL;DR
 Sehr wenige Dinge sind wichtiger als das persönliche Gespräch. Möchtest Du mit mir sprechen, dann lass uns sprechen.
 
 Du hast ein Gerücht gehört? Du benötigst eine Klärung oder hast einfach eine Verständnisfrage? Du bist unzufrieden oder es gibt etwas, dass Dich in Deiner Arbeit blockiert? Ich freue mich so früh wie möglich davon zu hören und helfe Dir gerne.
