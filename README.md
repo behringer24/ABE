@@ -26,7 +26,7 @@ Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vor
 **Fehler sind eine Chance.** Menschen machen Fehler und das ist gut so. Jeder Fehler ist eine Chance zu lernen. Lass uns offen darüber sprechen. Auch ich habe hier schon den ein oder anderen (auch größeren) Bock geschossen. Unsere tolle Fehlerkultur gibt mir das Vertrauen in die Firma und genau das gilt auch für Dich.
 
 ## Was Du von mir erwarten kannst
-**Ich gebe Dir Kontext.** Wenn Dir der Hintergrund Deiner Arbeit klar ist, dann wirst Du gute Entscheidungen in Deiner Arbeit treffen. Ich verfüge über einen guten Überblick und kenne meist die Hintergründe der Managemententscheidungen. Sollte ich sie mal nicht kennen, dann mache ich mich schlau.
+**Ich gebe Dir Kontext.** Wenn Dir der Hintergrund Deiner Arbeit klar ist, dann wirst Du gute Entscheidungen in Deiner Arbeit treffen. Ich verfüge über einen guten Überblick und kenne meist die Hintergründe. Sollte ich sie mal nicht kennen, dann mache ich mich schlau.
 
 **Ich challenge Dich.** Ich stelle Dir Fragen, damit Du Dir selber die richtigen Fragen stellen kannst. Deine richtigen Entscheidungen sind Dein Erfolg und der steht für mich im Vordergrund und wird so auch zu meinem Erfolg.
 
