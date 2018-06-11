@@ -17,10 +17,6 @@ Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vor
 
 **Du bestimmst, wie groß Dein Freiraum ist.** Die Basis ist Vertrauen und da bekommst Du einen großen Vorschuss. Unser gemeinsames offenes Feedback wird uns helfen, den optimalen Rahmen für Dich zu finden.
 
-**Sei selbstbewusst und diskutiere mit mir.** Deine kontroverse Meinung will ich hören und ich finde es wichtig, Themen aus verschiedenen Blickwinkeln zu beleuchten.
-
-**Hilf mir besser zu werden.** Sag mir was ich gut mache und sei jederzeit mutig genug mir zu sagen was ich verkackt habe. Ersteres mache ich dann gerne häufiger, an Letzterem werde ich hart arbeiten. Ich bin ein extrem selbstkritischer Mensch - aber eben leider auch nur das.
-
 **Wir sind das Team.** Ich mache diesen Job um gemeinsam herausragende Ergebnisse zu erreichen und nicht aus Machtmotiven. Ich sehe meine Rolle als Unterstützer und stehe Dir zur Seite, damit Du so richtig Gas geben kannst.
 
 **Fehler sind eine Chance.** Menschen machen Fehler und das ist gut so. Jeder Fehler ist eine Chance zu lernen. Lass uns offen darüber sprechen. Auch ich habe hier schon den ein oder anderen (auch größeren) Bock geschossen. Unsere tolle Fehlerkultur gibt mir das Vertrauen in die Firma und genau das gilt auch für Dich.
@@ -39,11 +35,11 @@ Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vor
 ## Wie kannst Du mir helfen?
 **Leiste hervorragende Arbeit.** Das ist meine Erwartung. Lass mich wissen, wenn Dich etwas davon abhält.
 
-**Widersprich mir.** Die beste Voraussetzung dafür ist Vertrauen. Ich werde hart daran arbeiten, dass Du dieses Vertrauen zu mir aufbauen kannst.
+**Widersprich mir.** Deine kontroverse Meinung will ich hören und ich finde es wichtig, Themen aus verschiedenen Blickwinkeln zu beleuchten. Die beste Voraussetzung dafür ist Vertrauen. Ich werde hart daran arbeiten, dass Du dieses Vertrauen zu mir aufbauen kannst.
 
 **Entscheide als wäre es Deine Firma.** Wärst Du mit Deinem Ergebnis zufrieden, wenn es Deine Firma wäre und Dein nächstes Gehalt unmittelbar davon abhinge? Ich war selbständig und kann Dir helfen, diese Denkweise zu entwickeln.
 
-**Sag mir, wenn ich was verkackt habe.** Ich bin ein Mensch und mache Fehler und ich lerne nie aus. Ich bin selbstkritisch und doch sehe ich nicht immer alles. Sag mir bitte, wenn ich was nicht gut gemacht habe und was Du von mir erwartet hättest.
+**Hilf mir besser zu werden.** Sag mir was ich gut mache und sei jederzeit mutig genug mir zu sagen was ich verkackt habe. Ersteres mache ich dann gerne häufiger, an Letzterem werde ich hart arbeiten. Ich bin ein extrem selbstkritischer Mensch - aber eben leider auch nur das. Sag mir bitte, wenn ich was nicht gut gemacht habe und was Du von mir erwartet hättest.
 
 **Kommuniziere.** Die meisten Fehler entstehen durch mangelnde Kommunikation. Konflikte lassen sich auf diesem Weg oft frühzeitig vermeiden. Mache keine Annahmen, was genau gefordert sein könnte, sondern sei mutig und frag die Auftraggeber, bis Du eine klare Vorstellung hast, was gewünscht ist. Aber auch:
 
