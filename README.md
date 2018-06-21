@@ -37,7 +37,7 @@ Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vor
 
 **Widersprich mir.** Deine kontroverse Meinung will ich hören und ich finde es wichtig, Themen aus verschiedenen Blickwinkeln zu beleuchten. Die beste Voraussetzung dafür ist Vertrauen. Ich werde hart daran arbeiten, dass Du dieses Vertrauen zu mir aufbauen kannst.
 
-**Entscheide als wäre es Deine Firma.** Wärst Du mit Deinem Ergebnis zufrieden, wenn es Deine Firma wäre und Dein nächstes Gehalt unmittelbar davon abhinge? Ich war selbständig und kann Dir helfen, diese Denkweise zu entwickeln.
+**Entscheide als wäre es Deine Firma.** Übernimm Verantwortung. Wärst Du mit Deinem Ergebnis zufrieden, wenn es Deine Firma wäre und Dein nächstes Gehalt unmittelbar davon abhinge? Ich war selbständig und kann Dir helfen, diese Denkweise zu entwickeln.
 
 **Hilf mir besser zu werden.** Sag mir was ich gut mache und sei jederzeit mutig genug mir zu sagen was ich verkackt habe. Ersteres mache ich dann gerne häufiger, an Letzterem werde ich hart arbeiten. Ich bin ein extrem selbstkritischer Mensch - aber eben leider auch nur das. Sag mir bitte, wenn ich was nicht gut gemacht habe und was Du von mir erwartet hättest.
 
