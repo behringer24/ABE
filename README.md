@@ -55,7 +55,7 @@ Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vor
 **Nutze das Feedback für Dich.** Nimm Dir aus dem Feedback, was Dich weiter bringt. Denke auch kritisch darüber nach, das Feedback mag auch mal daneben liegen, dann lass uns darüber reden. Mein Ziel ist immer Dich voran zu bringen.
 
 ## One-on-ones / O3
-**Die Zeit gehört Dir.** Ich nehme mir für Dich mindestens alle zwei Wochen fest Zeit, um mit Dir 30 Minuten zu sprechen. Es ist aber auch völlig Okay, wenn Du sagst, dass Du den Termin mal ausfallen lassen möchtest - es ist Deiner.
+**Die Zeit gehört Dir.** Ich nehme mir für Dich wöchentlich fest Zeit, um mit Dir 30 Minuten zu sprechen. Es ist aber auch völlig Okay, wenn Du sagst, dass Du den Termin mal ausfallen lassen möchtest - es ist Deiner.
 
 **Nutze die Zeit.** Bereite Dich vor, sag mir, wie ich Dir helfen kann, was Dich beschäftigt oder ob Du Feedback zu einem Thema haben möchtest. Und wenn ich Dich frage, wie es Dir geht, dann ist das keine Floskel.
 
