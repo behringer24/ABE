@@ -13,7 +13,7 @@ Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vor
 
 **Ich bin nicht gut in Deinem Job.** Deine Einschätzung ist für mich ein wesentlicher Beitrag zu allen meinen Entscheidungen. Wenn Du mit Deinen Entscheidungen auf dem richtigen Kurs bist, gibt es für mich keinen Grund Dir zu widersprechen und ich bin an Deiner Seite.
 
-**Du sagst mir, wenn Du Deinen Job nicht machen kannst.** Eine meiner Hauptverantwortungen ist sicher zu stellen, dass Du Deinen Job machen kannst. Manchmal passieren Dinge, die ich nicht sehe und dann weiß ich nicht, dass ich Dich unterstützen müsste. Sprich mich dann bitte an.
+**Du sagst mir, wenn Du Deinen besten Job machen kannst.** Eine meiner Hauptverantwortungen ist sicher zu stellen, dass Du Deinen Job optimal machen kannst. Manchmal passieren Dinge, die ich nicht sehe und dann weiß ich nicht, dass ich Dich unterstützen müsste. Sprich mich dann bitte an. Beantworte Dir und mir die Frage "Was kann ich tun, um dir zu helfen, deine beste Leistung zu erbringen?".
 
 **Du bestimmst, wie groß Dein Freiraum ist.** Die Basis ist Vertrauen und da bekommst Du einen großen Vorschuss. Unser gemeinsames offenes Feedback wird uns helfen, den optimalen Rahmen für Dich zu finden.
 
