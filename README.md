@@ -1,83 +1,83 @@
 # How to ABE
-Manager Readme von Andreas Behringer, Kürzel ABE
+Manager Readme of Andreas Behringer, abbreviation ABE
 
 ## TL;DR
-Sehr wenige Dinge sind wichtiger als das persönliche Gespräch. Möchtest Du mit mir sprechen, dann lass uns sprechen.
+Very few things are more important than a personal conversation. If you want to talk to me, let's talk.
 
-Du hast ein Gerücht gehört? Du benötigst eine Klärung oder hast einfach eine Verständnisfrage? Du bist unzufrieden oder es gibt etwas, dass Dich in Deiner Arbeit blockiert? Ich freue mich so früh wie möglich davon zu hören und helfe Dir gerne.
+You have heard a rumor? You need clarification or simply have a question? You are dissatisfied or there is something that blocks you in your work? I look forward to hearing about it as early as possible and will be happy to help you.
 
-Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vorher fragen. Ist mein Kalender bereits voll, dann sprich mich an oder schick mir eine Nachricht.
+You are allowed to put something in my calendar and you don't have to ask before. If my calendar is already full, then talk to me or send me a message.
 
-## Mein Standpunkt
-**Du bist gut in Deinem Job.** Du wärst nicht hier, wenn es nicht so wäre. Wenn ich Dich mit Fragen bombardiere, dann nur a) um einen Kontext zu bekommen oder b) um Dir zu helfen Dir selbst die richtigen Fragen zu stellen.
+## My position
+**You're good at your job.** You wouldn't be here if you weren't. When I bombard you with questions, it's just a) to get a context or b) to help you ask yourself the right questions.
 
-**Ich bin nicht gut in Deinem Job.** Deine Einschätzung ist für mich ein wesentlicher Beitrag zu allen meinen Entscheidungen. Wenn Du mit Deinen Entscheidungen auf dem richtigen Kurs bist, gibt es für mich keinen Grund Dir zu widersprechen und ich bin an Deiner Seite.
+**I am not good at your job.** Your opinion is an essential contribution to all my decisions. If you are on the right course with your decisions, there is no reason for me to contradict you and I am at your side.
 
-**Du sagst mir, wie Du Deinen besten Job machen kannst.** Eine meiner Hauptverantwortungen ist sicher zu stellen, dass Du Deinen Job optimal machen kannst. Manchmal passieren Dinge, die ich nicht sehe und dann weiß ich nicht, dass ich Dich unterstützen müsste. Sprich mich dann bitte an. Beantworte Dir und mir die Frage "Was kann ich tun, um dir zu helfen, deine beste Leistung zu erbringen?".
+**You tell me how to do your best job.** One of my main responsibilities is to make sure that you can do your job the best you can. Sometimes things happen that I don't see and then I don't know that I have to support you. Then please talk to me. Please answer the question "What can I do to help you achieve your best performance?
 
-**Du bestimmst, wie groß Dein Freiraum ist.** Die Basis ist Vertrauen und da bekommst Du einen großen Vorschuss. Unser gemeinsames offenes Feedback wird uns helfen, den optimalen Rahmen für Dich zu finden.
+**You decide how much freedom you have.** The basis is trust and there you get a large amount in advance.  Our open feedback will help us to find the optimal amount of room for you.
 
-**Wir sind das Team.** Ich mache diesen Job um gemeinsam herausragende Ergebnisse zu erreichen und nicht aus Machtmotiven. Ich sehe meine Rolle als Unterstützer und stehe Dir zur Seite, damit Du so richtig Gas geben kannst.
+**We're the team.** I'm doing this job to achieve outstanding results together, not for reasons of power. I see my role as a supporter and stand by you so that you can really step on the gas.
 
-**Fehler sind eine Chance.** Menschen machen Fehler und das ist gut so. Jeder Fehler ist eine Chance zu lernen. Lass uns offen darüber sprechen. Auch ich habe hier schon den ein oder anderen (auch größeren) Bock geschossen. Unsere tolle Fehlerkultur gibt mir das Vertrauen in die Firma und genau das gilt auch für Dich.
+**Mistakes are an opportunity.** People make mistakes, and that's a good thing. Every mistake is a chance to learn. Let's talk openly about it. I also really blew it on the one or another occasions. Our great error culture gives me the confidence in the company and exactly the same applies to you.
 
-## Was Du von mir erwarten kannst
-**Ich gebe Dir Kontext.** Wenn Dir der Hintergrund Deiner Arbeit klar ist, dann wirst Du gute Entscheidungen in Deiner Arbeit treffen. Ich verfüge über einen guten Überblick und kenne meist die Hintergründe. Sollte ich sie mal nicht kennen, dann mache ich mich schlau.
+## What you can expect from me
+**I'll give you context.** If the background of your work is clear to you, then you will make good decisions in your work.  I have a good overview and usually know the background. If I don't know them, then I will inform myself about it.
 
-**Ich challenge Dich.** Ich stelle Dir Fragen, damit Du Dir selber die richtigen Fragen stellen kannst. Deine richtigen Entscheidungen sind Dein Erfolg und der steht für mich im Vordergrund und wird so auch zu meinem Erfolg.
+**I challenge you.** I ask you questions so that you can ask yourself the right questions. Your right decisions are your success and for me this is the most important thing and thus also becomes my success.
 
-**Ich stehe Dir zur Seite.** Haben wir mal eine falsche Entscheidung getroffen, dann sprechen wir über die Ursache. Dann habe ich Dir vorher vielleicht nicht die richtigen oder ausreichenden Informationen gegeben oder selbst falsche Entscheidungen getroffen und das macht es zu meinem Fehler. Wir arbeiten daran, dass die nächsten Entscheidungen besser laufen. Eine falsche Entscheidung, über die man spricht, wird eine Chance - eine falsche Entscheidung, die man verheimlicht, wird ein Fehler.
+**I'll stand by you.** If we made a wrong decision, we talk about the root reason.  Then maybe I didn't give you the right or sufficient information before or made wrong decisions myself and that makes it my mistake. We are working on making the next decisions better. A wrong decision you talk about becomes an opportunity - a wrong decision you hide becomes a mistake.
 
-**Ich lösche Feuer.** Es lässt sich nicht immer vermeiden, dass Dinge schief laufen und “shit hits the fan”. Es ist meine Aufgabe mit Dir gemeinsam dafür zu sorgen, dass wir wieder effektiv und effizient an unseren Aufgaben arbeiten können und den Blick nach vorn richten.
+**I'll put out the fire.** You can't always avoid things going wrong and "shit hits the fan".  It is my job to work with you to ensure that we can work effectively and efficiently on our tasks again and look ahead.
 
-**… und mehr.** Sag mir, wo ich Dir noch bei helfen kann.
+**… ...and more.** Tell me where else I can help you.
 
-## Wie kannst Du mir helfen?
-**Leiste hervorragende Arbeit.** Das ist meine Erwartung. Lass mich wissen, wenn Dich etwas davon abhält.
+## How you can help me
+**Do an outstanding job.** That is my expectation.  Let me know if something's holding you back.
 
-**Widersprich mir.** Deine kontroverse Meinung will ich hören und ich finde es wichtig, Themen aus verschiedenen Blickwinkeln zu beleuchten. Die beste Voraussetzung dafür ist Vertrauen. Ich werde hart daran arbeiten, dass Du dieses Vertrauen zu mir aufbauen kannst.
+**Disagree with me.** I want to hear your controversial opinion and I believe it is important to shed light on topics from different angles.  The best foundation for this is trust. I will work hard so that you can build this trust in me.
 
-**Entscheide als wäre es Deine Firma.** Übernimm Verantwortung. Wärst Du mit Deinem Ergebnis zufrieden, wenn es Deine Firma wäre und Dein nächstes Gehalt unmittelbar davon abhinge? Ich war selbständig und kann Dir helfen, diese Denkweise zu entwickeln.
+**Make decisions like it's your company.** Take responsibility.  Would you be satisfied with your result if it was your company and your next pay check directly depended on it? I was self-employed and can help you to develop this way of thinking.
 
-**Hilf mir besser zu werden.** Sag mir was ich gut mache und sei jederzeit mutig genug mir zu sagen was ich verkackt habe. Ersteres mache ich dann gerne häufiger, an Letzterem werde ich hart arbeiten. Ich bin ein extrem selbstkritischer Mensch - aber eben leider auch nur das. Sag mir bitte, wenn ich was nicht gut gemacht habe und was Du von mir erwartet hättest.
+**Help me get better.** Tell me what I do well and be courageous enough to tell me what I fucked up.  I like to do the former more often, I will work hard on the latter. I am an extremely self-critical human being - but unfortunately only that. Please tell me if I didn't do something well and what you would have expected from me.
 
-**Kommuniziere.** Die meisten Fehler entstehen durch mangelnde Kommunikation. Konflikte lassen sich auf diesem Weg oft frühzeitig vermeiden. Mache keine Annahmen, was genau gefordert sein könnte, sondern sei mutig und frag die Auftraggeber, bis Du eine klare Vorstellung hast, was gewünscht ist. Aber auch:
+**Communicate.** Most mistakes are due to lack of communication.  Conflicts can often be avoided in this way at an early stage. Do not make any assumptions about what exactly might be demanded, but be courageous and ask the customer until you have a clear idea of what is wanted. But also:
 
-**Berate.** Du arbeitest hier, weil Du ein erfahrener Entwickler bist. Lass uns daran teilhaben. Wenn ich eins in meiner beruflichen Laufbahn gelernt habe, dann, dass Entwickler oft Alternativen kennen, wie man das Ziel mit unterschiedlichen Mitteln erreichen kann - das ist wertvoll. Dafür musst Du das Ziel durchdrungen haben.
+**Give advice.** You work here because you are an experienced developer.  Allow us to be part of it. If there's one thing I've learned in my career, it's that developers often know alternatives to how to meet the objective with different ways - it's valuable. To do that, you must have thoroughly understood the objective.
 
-**Schaue über den Tellerrand.** Mache Dich mit unseren Zielen vertraut. Wir haben eine sehr offene Unternehmenskultur und Du bekommst tiefe Einblicke, wenn Du interessiert bist. Manche Dinge sind wichtiger als nur perfekte Ergebnisse im Code oder ein abgeschlossener Task. Dazu gehört, dass eine Lösung im Gesamtkontext aus Strategien, Zielen, Unternehmen, Team und Kollegen Sinn macht.
+**Look beyond the box.** Familiarize yourself with our goals. We have a very open corporate culture and you will get deep insights if you are interested. Some things are more important than just perfect results in code or a completed task. This means that a solution in the overall context of strategies, goals, company, team and colleagues makes sense.
 
 ## Feedback
-**Ich mag es nicht Feedback zu sammeln.** Wenn ich Feedback für Dich habe werde ich Dich kurzfristig ansprechen oder unser nächstes One-on-one (o3) dafür nutzen. Ich mag keine Sätze wie “was ich Dir schon immer sagen wollte”.
+**I don't like to collect feedback for you.** If I have feedback for you I will contact you as soon as possible or use our next One-on-one (o3).  I don't like sentences like "what I always wanted to tell you".
 
-**Feedback bezieht sich auf die Sache nicht auf die Person.** Wenn ich kritisches Feedback habe, dann spreche ich diesen Vorfall an. Es liegt mir fern, Deine Persönlichkeit mit Grundsatzkritik zu beurteilen.
+**Feedback on the matter does not apply to the person.** If I have critical feedback, then I am addressing this incident.  It is far from my intention to judge your personality with fundamental criticism.
 
-**Nutze das Feedback für Dich.** Nimm Dir aus dem Feedback, was Dich weiter bringt. Denke auch kritisch darüber nach, das Feedback mag auch mal daneben liegen, dann lass uns darüber reden. Mein Ziel ist immer Dich voran zu bringen.
+**Use the feedback for yourself.** Take from the feedback what brings you further.  Think critically about it, the feedback may be wrong, then let's talk about it. My goal is always to make you improve yourself.
 
-## One-on-ones / O3
-**Die Zeit gehört Dir.** Ich nehme mir für Dich wöchentlich fest Zeit, um mit Dir 30 Minuten zu sprechen. Es ist aber auch völlig Okay, wenn Du sagst, dass Du den Termin mal ausfallen lassen möchtest - es ist Deiner.
+## One-on-ones / O3 / weekly employee meeting
+The time is yours. I take weekly time for you to talk to you for 30 minutes.  But it's also okay if you say you want to skip the meeting - it's yours.
 
-**Nutze die Zeit.** Bereite Dich vor, sag mir, wie ich Dir helfen kann, was Dich beschäftigt oder ob Du Feedback zu einem Thema haben möchtest. Und wenn ich Dich frage, wie es Dir geht, dann ist das keine Floskel.
+**Use the time.** Prepare yourself, tell me how I can help you, what's on your mind or if you want feedback on a topic.  And when I ask you how you are, it's not a phrase.
 
-**Auch sonst…** Ich bin natürlich auch sonst gerne für Dich da, Du musst nicht auf den nächsten O3 Termin warten. Sprich mich an. In dringenden Fällen kannst Du mich auch aus einem Meeting holen oder mich jederzeit anrufen - meine Kontaktdaten hast Du seperat bekommen.
+**Also otherwise...** I am of course also there for you at other times, you do not have to wait for the next O3 date. Speak to me. In urgent cases you can also ask me out of a meeting or call me at any time - my contact details have been sent to you separately.
 
-## Meine Werte
-Wir haben Unternehmenswerte, die überall im Büro aushängen. Diese Werte habe ich mitgestaltet und stehe dahinter. Bei der Interpretation für Dich unterstütze ich Dich gerne. Darüber hinaus habe ich noch persönliche Werte, wie:
+## My values
+We have corporate values that are displayed all over the office. I have helped to form these values and stand behind them. I will be happy to support you in interpreting them for you. Beyond that I have still personal values, like:
 
-**Ehrlichkeit.** Die Basis dafür ist Vertrauen und Offenheit.
+**Honesty.** The basis for this is trust and openness. 
 
-**Vorangehen.** Mutig und interessiert sein und ein Vorbild sein wollen.
+**Go first.** Be courageous and interested and want to be a role model. 
 
-**Empathie.** Den Menschen und seine Motive ganzheitlich verstehen.
+**Empathy.** Understanding people and their motives as a whole. 
 
-**Selbstkritik.** Nur, wer selbstkritisch ist und sich reflektiert kann sich verbessern.
+**Self-criticism.** Only those who are self-critical and who reflect can improve. 
 
-**Exzellenz.** Das Wissen niemals perfekt zu sein aber diesen Zustand anstreben.
+**Excellence.** The knowledge never to be perfect but to strive for this state. 
 
-## Schlusswort
-Ich würde mich über Dein Feedback freuen.
+## Closing remarks
+I'd appreciate your feedback.
 
-War diese Readme für Dich hilfreich?
-Fehlt etwas wichtiges?
+Was this Readme helpful for you?
+Is something important missing?
 
-Sprich mit mir darüber, ich entwickle diese Readme gerne weiter.
+Talk to me about it, I like to develop this Readme further.
