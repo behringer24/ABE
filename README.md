@@ -1,5 +1,5 @@
 # How to ABE
-Manager Readme of Andreas Behringer, abbreviation ABE
+Manager Readme of Andreas Behringer.
 
 ## TL;DR
 Very few things are more important than a personal conversation. If you want to talk to me, let's talk.
