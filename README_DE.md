@@ -62,7 +62,7 @@ Du darfst mir gerne etwas in meinen Kalender stellen und Du musst auch nicht vor
 **Auch sonst…** Ich bin natürlich auch sonst gerne für Dich da, Du musst nicht auf den nächsten O3 Termin warten. Sprich mich an. In dringenden Fällen kannst Du mich auch aus einem Meeting holen oder mich jederzeit anrufen - meine Kontaktdaten hast Du seperat bekommen.
 
 ## Meine Werte
-Wir haben Unternehmenswerte, die überall im Büro aushängen. Diese Werte habe ich mitgestaltet und stehe dahinter. Bei der Interpretation für Dich unterstütze ich Dich gerne. Darüber hinaus habe ich noch persönliche Werte, wie:
+Meine persönlichen Werte:
 
 **Ehrlichkeit.** Die Basis dafür ist Vertrauen und Offenheit.
 
